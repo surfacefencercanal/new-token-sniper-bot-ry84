@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with automatic Bot for new token sniper bot | pump-detection & priority-gas-auctions. Featuring pump-detection and priority-gas-auctions,
 
 
 
